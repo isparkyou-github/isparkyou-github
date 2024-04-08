@@ -4,13 +4,13 @@
 #### Ethan
 #### Friedrich Prometheus Ludwig
 
-BTC holder since 2012.
-Player in defi and gamefi.
-Believer of DYOR, STFW, RTFM.
-Solidity developer.
-Masters of computer science and electrical engineering.
-Senior electrc engineer.
-15 years work experiences.
+#### BTC holder since 2012.
+#### Player in defi and gamefi.
+#### Believer of DYOR, STFW, RTFM.
+#### Solidity developer.
+#### Masters of computer science and electrical engineering.
+#### Senior electrc engineer.
+#### 15 years work experiences.
 
 Change can happen
 高人指路，贵人相助，小人监督，敌人成就                                     
