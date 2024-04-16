@@ -4,6 +4,8 @@
 #### Ethan
 #### Friedrich Prometheus Ludwig
 
+#### Made on earth by humans
+
 #### BTC holder since 2012.
 #### Player in defi and gamefi.
 #### Believer of DYOR, STFW, RTFM.
