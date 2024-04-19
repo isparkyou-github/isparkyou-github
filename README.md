@@ -6,6 +6,14 @@
 
 #### Made on earth by humans
 
+#### I love three things in this world.
+#### Sun, moon, and you.
+#### Sun for morning, moon for night.
+#### And you forever.
+
+#### 浮世三千，吾爱有三，日月与卿。
+#### 日为朝，月为暮，卿为朝朝暮暮。
+
 #### BTC holder since 2012.
 #### Player in defi and gamefi.
 #### Believer of DYOR, STFW, RTFM.
